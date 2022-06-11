@@ -1,5 +1,5 @@
 Hi! 
 
-My name is Vardaan and currently I am busy updating this page ;)
+My name is Vardaan.
 
-You can still reach me at [linkedin.com/in/vardaansahgal](https://linkedin.com/in/vardaansahgal)
+Visit [sahgalvardaan.github.io](https://sahgalvardaan.github.io) to know more about me.
